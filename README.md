@@ -1,2 +1,2 @@
-# AnthonyIreo.github.io
+# AnthonyIreo
 personal page
